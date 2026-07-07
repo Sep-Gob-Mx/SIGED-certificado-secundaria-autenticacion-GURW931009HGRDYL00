@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GURW931009HGRDYL00
+GURW931009HGRDYL00
